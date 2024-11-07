@@ -1,1 +1,1 @@
-[Лабараторна (1).docx](https://github.com/user-attachments/files/17390942/1.docx)
+https://docs.google.com/document/d/158iN8Sr8ZSz2wvk1dTG8TMkK-0ytfOvY/edit
